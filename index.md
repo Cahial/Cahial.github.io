@@ -9,3 +9,6 @@ Raymond „Red“ Reddington ist ein ehemaliger Offizier des Office of Naval Int
 * Charmant
 * Faszinierend
 * Sprachgewand
+
+Zitat (Staffel 5):
+> Wie diese frittierte Butter bin ich nunmal ungesund und doch unwiderstehlich.
