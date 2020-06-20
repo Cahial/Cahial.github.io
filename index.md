@@ -10,5 +10,7 @@ Raymond „Red“ Reddington ist ein ehemaliger Offizier des Office of Naval Int
 * Faszinierend
 * Sprachgewand
 
+![Reddington Foto](https://www.hypeandstyle.fr/wp-content/uploads/2019/04/3tv1wb45tsy11-1170x658.jpg)
+
 Zitat (Staffel 5):
 > Wie diese frittierte Butter bin ich nunmal ungesund und doch unwiderstehlich.
